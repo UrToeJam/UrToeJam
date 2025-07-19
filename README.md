@@ -1,16 +1,15 @@
-## Hi there 👋
+heyyyy
 
-<!--
-**UrToeJam/UrToeJam** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 🔭 I’m currently working on digital art and anatomy 
+- 🌱 I’m currently learning face anatomy
+- 👯 I’m looking to collaborate on art 🎨 
+- 🤔 I’m looking for help with art and coloring tips
+- 💬 Ask me about how i draw, interests, or anything not offensive to ppl or me!!
+- 📫 How to reach me: Pinterest yipee!! 
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: Wow! yeah idk km Muslim???
 -->
