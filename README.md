@@ -1,8 +1,4 @@
-heyyyy
-
-
-
-Here are some ideas to get you started:
+heyyy
 
 - 🔭 I’m currently working on digital art and anatomy 
 - 🌱 I’m currently learning face anatomy
